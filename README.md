@@ -2,7 +2,7 @@
 - 👀 I’m interested in games and sports
 - 🌱 I’m currently learning 
 - 💞️ I’m not looking to collaborate on anything for now
-- 📫 How to reach me: Medic Gaming#2355
+- 📫 How to reach me: Cassidy#2077 on Discord
 
 <!---
 FilippoFerarri/FilippoFerarri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
