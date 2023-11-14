@@ -2,4 +2,4 @@
 - 👀 I’m interested in games and sports
 - 🌱 I’m currently learning to code
 - 💞️ I’m not looking to collaborate on anything for now
-- 📫 How to reach me: cutiewutieuwu on Discord
+- 📫 How to reach me: https://e-z.bio/susiee
