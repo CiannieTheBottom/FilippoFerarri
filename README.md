@@ -1,5 +1,2 @@
-- 👋 Hi, I’m Ciannie
-- 👀 I’m interested in games and sports
-- 🌱 I’m currently learning to code
-- 💞️ I’m not looking to collaborate on anything for now
-- 📫 How to reach me: https://e-z.bio/susiee
+- 👋 Hi, I’m Susiee
+- 📫 How to reach me: https://femboy.services/susiee
